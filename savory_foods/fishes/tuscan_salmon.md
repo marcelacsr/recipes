@@ -1,12 +1,13 @@
 # Salmão Toscano
 ## Ingredientes
 - 800g salmão fresco
-- ⁠1 cebola
+- ⁠1 cebola média
 - ⁠3 dentes de alho
-- ⁠500g tomate cereja
+- ⁠250-300g tomate cereja
 - ⁠300g cream cheese
 - ⁠2 xc caldo de camarão (ou legumes)
-- ⁠1 brócolis chinês
+- ⁠1 brócolis grande
+- Salsinha
 
 ## Preparo
 1. Temperar o salmão com sal e pimenta do reino. 
@@ -15,7 +16,7 @@
 4. Juntar os tomates cereja cortados ao meio e refogar mais um pouco até começarem a murchar.
 5. Adicionar sal e pimenta do reino, juntar o cream cheese e misturar bem. 
 6. Adicionar o caldo de camarão e misturar. 
-7. Adicionar o brócolis, cobrir com o molho e deixar cozinhar até ficar macio.
+7. Adicionar o brócolis, cobrir com o molho e deixar cozinhar até ficar macio. Se tiver tampa, tampar.
 8. Acertar o sal e pimenta, voltar com o salmão e finalizar com salsinha.
 <details>
   <summary>Fotos</summary>
