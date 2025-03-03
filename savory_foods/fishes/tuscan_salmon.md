@@ -18,8 +18,12 @@
 6. Adicionar o caldo de camarão e misturar. 
 7. Adicionar o brócolis, cobrir com o molho e deixar cozinhar até ficar macio. Se tiver tampa, tampar.
 8. Acertar o sal e pimenta, voltar com o salmão e finalizar com salsinha.
+
+### Instagram 
+https://www.instagram.com/p/DDafsu6xWnJ/
+### Fotos
 <details>
-  <summary>Fotos</summary>
+  <summary>Abrir</summary>
   
 ![WhatsApp Image 2025-03-03 at 16 45 04](https://github.com/user-attachments/assets/80f86a9f-b0f6-44d1-8795-39429202a23d)
 ![WhatsApp Image 2025-03-03 at 16 45 03](https://github.com/user-attachments/assets/49269969-0b61-48ab-b9e1-c7edad89a874)
