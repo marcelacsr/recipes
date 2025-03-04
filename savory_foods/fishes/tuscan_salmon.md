@@ -12,7 +12,7 @@
 ## Preparo
 1. Temperar o salmão com sal e pimenta do reino. 
 2. Em uma panela bem quente, adicionar 1 cl (sopa) de azeite, selar os filés de salmão de todos os lados e reservar.
-3. Na mesma panela, adicionar 1 cl (sopa) de manteiga e 1 cl (sopa) de azeite, e refogar a cebola e o alho. 
+3. Na mesma panela, adicionar 1 cl (sopa) de manteiga e 1 cl (sopa) de azeite, e refogar a cebola e o alho (picados pequeno). 
 4. Juntar os tomates cereja cortados ao meio e refogar mais um pouco até começarem a murchar.
 5. Adicionar sal e pimenta do reino, juntar o cream cheese e misturar bem. 
 6. Adicionar o caldo de camarão e misturar. 
