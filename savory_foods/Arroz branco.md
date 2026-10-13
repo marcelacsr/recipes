@@ -24,7 +24,7 @@ Ingredientes
 • 1copo de arroz
 • 3 copos de água fervente
 • 1 colher (sopa) de azeite ou óleo
-• 1 colher (café) de alho em pó
+• 2 colheres (café) de alho em pó
 • 1 colher (café) de cebola em pó
 • 2 colheres (café) de sal
 
